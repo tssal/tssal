@@ -1,16 +1,31 @@
-## Hi there 👋
+↓↓↓最/新/观/看/入/口↓↓↓
 
-<!--
-**tssal/tssal** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+http://www.baidu.com/link?url=XaDzi4lrlBsIf7hc43pQAeEvE68KnODCy8r9yapmf0G&wd
 
-Here are some ideas to get you started:
+后面的车队也慢慢追了上来。
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+本来在拼命赶路的人，看到他们悠闲的样子，一个个都陷入了怀疑人生的状态中。
+
+他们到底是在逃亡，还在度假？
+
+有人说：“无知者无畏，放松警惕就意味着灭亡，想死的话，就留下来看星星吧。”
+
+跟这人一样警惕的人都开着车离开了，但有更多的车停了下来。
+
+他们倒不是想度假或者是看星星，他们留下，纯粹是因为锦晏一行人是他们从逃亡开始见到的阵容最强大的团队。
+
+跟在这样的强者后面，不说一定不会出事，但出事的概率总会小一些。
+
+毕竟就算他们打不过丧尸，还可以往强者跟前跑，将丧尸引过去，不论后续如何，小命是肯定能保住的。
+
+黎冬的车也在这里停了下来。
+
+看到黎冬神色复杂的望着窗外，赵树林也看了一眼，那个方向上坐着的是之前遇到的很能打的一个女孩。
+
+赵树林：“黎小姐，我们不走了吗？”
+
+黎冬没听到她的话，一只手却紧紧抓着方向盘。
+
+“那个女孩很能打，我跟李哥两个加起来可能都打不过他。”赵树林说。
+http://www.t6e7.top
+而李云青说了一句，“不用‘可能
